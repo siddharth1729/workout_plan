@@ -1,5 +1,7 @@
 # Deep Research Workout plan 6 Weeks
 
+Note: This is generated bt llm
+
 ﻿A Comprehensive 6-Week Workout and Diet Plan for Vegetarian Body Recomposition
 
 Introduction: Setting the Stage for Vegetarian Fat Loss and Muscle Gain
