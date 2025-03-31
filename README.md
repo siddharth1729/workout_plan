@@ -1,4 +1,4 @@
-# START OF FILE Final Deep Research Workout plan
+# Deep Research Workout plan 6 Weeks
 
 ﻿A Comprehensive 6-Week Workout and Diet Plan for Vegetarian Body Recomposition
 
@@ -149,4 +149,3 @@ Works cited
 17. How to Incorporate Progressive Overload in Your Workout Plan - Verywell Health, https://www.verywellhealth.com/progressive-overload-8771018
 18. 5 Progressive Overload Techniques To FORCE Muscle Growth - Built With Science, https://builtwithscience.com/fitness-tips/progressive-overload-techniques/
 
---- END OF FILE Final Deep Research Workout plan ---
